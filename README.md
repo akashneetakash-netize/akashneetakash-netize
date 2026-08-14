@@ -1,4 +1,3 @@
-# 🚀 ENHANCED AKASH PROFILE - TOP 1% CALIBER
 
 <div align="center">
 
